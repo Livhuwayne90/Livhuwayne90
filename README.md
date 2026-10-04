@@ -15,7 +15,7 @@ I'm a Senior Public Administrator and Project Coordinator with over 14 years of 
 
 ## 🔗 Connect With Me
 - **LinkedIn**: [linkedin.com/in/livhuwayne90](https://linkedin.com/in/livhuwayne90)
-- **Email**: GiftK@sassa.gov.za
+- **Email**: klivhugift@gmail.com
 
 ---
 *"Leadership is not about being in charge. It is about taking care of those in your charge."*
