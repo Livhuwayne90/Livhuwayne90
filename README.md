@@ -1,4 +1,4 @@
-# Hi, I'm Livhuwani Kanike 👋
+# Hi, I'm Livhuwani Gift Kanike 👋
 
 I'm a Senior Public Administrator and Project Coordinator with over 14 years of experience in South Africa's public service. Currently acting as Team Leader at SASSA, I'm passionate about policy compliance, operational efficiency, and leveraging AI for workflow automation.
 
